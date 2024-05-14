@@ -1,4 +1,4 @@
-Ola! eu sou a Camila Santos :sunglasses:👩‍💻
+Ola! eu sou a Camila Santos 👩‍💻
 
 
 
